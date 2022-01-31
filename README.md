@@ -1,6 +1,6 @@
 # stuff
 
-Corona Vairus
+Corona 
 
-novas coisa
+novas coisas
 
